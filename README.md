@@ -18,4 +18,5 @@ Here are some ideas to get you started:
 📫 Let's Connect:
 
 LinkedIn: https://www.linkedin.com/in/aleksandar-atanasov-xyz/
+
 Twitter: https://twitter.com/bubigobolemeot
